@@ -1,4 +1,4 @@
-# KpopGen.xyz
+# popgen.xyz
 
 KpopGen.xyz is a premium domain concept built around the idea that **Gen is for Generations**.
 
